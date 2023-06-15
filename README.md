@@ -12,3 +12,7 @@ https://planebricks.com/collections/modern-military-aircraft/products/sr-71-blac
 Flying wing:
 
 https://www.flickr.com/photos/166701137@N06/49246443732/in/photostream/
+
+
+b21
+https://www.militaryaerospace.com/sensors/article/14068871/b21-bomber-stealth
